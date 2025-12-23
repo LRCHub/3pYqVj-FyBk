@@ -1,0 +1,60 @@
+# Morten Harket – Can't Take My Eyes off You
+
+> **歌詞登録ステータス：同期歌詞あり**
+
+```lrc
+[00:06.19] You're just too good to be true
+[00:10.80] Can't keep my eyes off you
+[00:14.73] You feel like heaven to touch
+[00:18.46] I wanna hold you so much
+[00:22.36] At long last love has arrived
+[00:26.19] And I thank God I'm alive
+[00:30.02] You're just too good to be true
+[00:33.78] Can't take my eyes off you
+[00:46.78] 
+[00:37.68] Pardon the way that I stare
+[00:41.36] There's nothing else to compare
+[00:45.03] The sight of you makes me weak
+[00:48.73] There are no words left to speak
+[00:52.64] But if you feel like I feel
+[00:56.47] Please let me know that it's real
+[01:00.15] You're just too good to be true
+[01:03.89] Can't take my eyes off you
+[01:16.89] 
+[01:23.28] I love you, baby
+[01:26.83] And if it's quite alright
+[01:28.76] I need you, baby
+[01:30.20] To warm the lonely nights
+[01:32.17] I love you, baby
+[01:34.48] Trust in me when I say
+[01:45.48] 
+[01:38.71] Oh, pretty baby
+[01:41.47] Don't bring me down, I pray
+[01:43.20] Oh, pretty baby
+[01:44.85] Now that I've found you, stay
+[01:46.94] Let me love you, baby
+[01:50.15] Let me love you
+[01:57.65] 
+[01:54.07] You're just too good to be true
+[01:57.87] Can't keep my eyes off you
+[02:01.94] You feel like heaven to touch
+[02:05.47] I wanna hold you so much
+[02:09.37] At long last love has arrived
+[02:13.18] And I thank God I'm alive
+[02:16.64] You're just too good to be true
+[02:20.53] Can't take my eyes off you
+[02:33.53] 
+[02:33.38] I love you, baby
+[02:35.86] And if it's quite alright
+[02:37.82] I need you, baby
+[02:39.48] To warm the lonely nights
+[02:41.52] I love you, baby
+[02:43.76] Trust in me when I say
+[02:54.76] 
+[02:47.90] Oh, pretty baby
+[02:50.67] Don't bring me down, I pray
+[02:52.33] Oh, pretty baby
+[02:54.16] Now that I've found you, stay
+[02:56.46] Let me love you, baby
+[02:59.51] Let me love you
+```
